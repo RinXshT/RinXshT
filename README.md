@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RinXshT.
+- 👀 I’m interested in web development.
